@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mberquer, im ok with any pronoun !
+- 👋 Hi, I’m @mberquer, please send me some raccoon memes
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning how to organize myself and not die under pressure
 
